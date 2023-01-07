@@ -1,2 +1,0 @@
-# lihaha
-note
